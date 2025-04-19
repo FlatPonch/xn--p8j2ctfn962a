@@ -1,1 +1,1 @@
-<div><video controls src="https://xn--p8j2ctfn962a.com/yattaze.mp4" width="1000"></video></div>
+特に意味はないです（大嘘）
